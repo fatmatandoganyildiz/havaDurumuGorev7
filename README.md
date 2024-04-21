@@ -1,0 +1,2 @@
+# havaDurumuGorev7
+ 
